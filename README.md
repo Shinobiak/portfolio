@@ -29,11 +29,25 @@
 - Developed office and administrative skills
 
 ## Leadership & Activities
-**TEDx Event Host (October 2021)**
+**TEDx Event Host | October 2021**
+- 𝐓𝐄𝐃𝐱𝐘𝐨𝐮𝐭𝐡@𝐂𝐚𝐧𝐝𝐨𝐫𝐈𝐧𝐭𝐥𝐒𝐜𝐡𝐨𝐨𝐥 was the first-ever TEDx event of Candor International School and left a meaningful legacy in my school's community.
 - Acquired an event license and hosted a TEDx Event for my high school at 17.
 - Actively involved in shortlisting the speakers
 - Managed the event logistics and social media promotion
-- The TEDx Talks have amassed over 9,000 views over the official TEDx website and YouTube channel.
+- The TEDx Talks have amassed over 9,000 views over the official TEDx website and YouTube channel
+
+**Student Council | 2019-2022**
+- Represented Candor International School in various capacities, including Headboy, Deputy Headboy, and House Vice-Captain
+- Facilitated weekly student council meetings and agendas
+- Acted as the main liaison between students and teachers
+- Sought outreach opportunities and collaboration with other schools
+- Assisted in the coordination of student council activities, requiring strong communication, leadership, and collaboration with both students and school staff
+- Maintained a detailed record of the minutes of every Student Council meeting for the term
+- Acted as a host for Candor's Class of 2021 Graduation Ceremony
+- Fostered online interhouse opportunities through the challenges of the pandemic
+- Initiated an interhouse toy drive fundraiser for the Bosco Mane Orphanage
+- Collaborated with the House Captain and members to earn 2nd place for Candor School's 9th Annual Sports Day event
+
 
 **Student Council (2019-22)**
 - Represented Candor International School in various capacities, including Headboy, Deputy Headboy, and House Vice-Captain
