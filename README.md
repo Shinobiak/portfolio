@@ -49,14 +49,10 @@
 - Collaborated with the House Captain and members to earn 2nd place for Candor School's 9th Annual Sports Day event
 
 
-**Student Council (2019-22)**
-- Represented Candor International School in various capacities, including Headboy, Deputy Headboy, and House Vice-Captain
-- Facilitated weekly student council meetings and agendas
-- Acted as the main liaison between students and teachers
-- Sought for outreach opportunities and collaboration with other schools
-- Assisted in the coordination of student council activities, requiring strong communication, leadership, and collaboration with both students and school staff.
-- Maintained a detailed record of the minutes of every Student Council meeting for the term.
-- Acted as a host for Candor's Class of 2021 Graduation Ceremony.
-- Fostered online interhouse opportunities through the challenges of the pandemic
-- Initiated an interhouse toy drive fundraiser for the Bosco Mane Orphanage
-- Collaborated with the House Captain and members to earn 2nd place for Candor School's 9th Annual Sports Day event
+**Virtual Insight Series Participant | May 2023 - Jul 2023**
+-Deepened my knowledge of key industry trends and emerging technologies
+-Equipped me with an understanding of the Goldman Sach's core values and its everlasting pursuit for innovation. 
+-Networked with a diverse group of ambitious individuals 
+
+**Global Studies Student @ Felsted Summer School | Jul 2020**
+-I was one of the 20 students selected from my school who received a scholarship to partake in the UK's Felsted's Global Studies Summer Program. I participated in conferences discussing international relations and global issues with my peers in this course.
