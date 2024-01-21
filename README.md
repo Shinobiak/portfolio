@@ -54,5 +54,5 @@
 -Equipped me with an understanding of the Goldman Sach's core values and its everlasting pursuit for innovation. 
 -Networked with a diverse group of ambitious individuals 
 
-**Global Studies Student @ Felsted Summer School | Jul 2020**
+**Global Studies Student @ Felsted Summer School | Jul 2020 **
 -I was one of the 20 students selected from my school who received a scholarship to partake in the UK's Felsted's Global Studies Summer Program. I participated in conferences discussing international relations and global issues with my peers in this course.
